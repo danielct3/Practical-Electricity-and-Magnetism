@@ -1,1 +1,1 @@
-# Practical-Electricity-and-Magnetism
+# Practical Electricity and Magnetism
